@@ -36,3 +36,8 @@ Previous lesson:
 ![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/b4ab2c87-d430-4a9a-aa3a-efbcee2dd41c =200x200)
 stolbitsa.com/fistachka/klen<br><br>
 
+
+![6](https://github.com/user-attachments/assets/2e94d9a5-0514-4f05-b03a-5532a285806e)
+![5](https://github.com/user-attachments/assets/ddb68627-65c8-4c70-9fba-fe812ab03a15)
+
+
