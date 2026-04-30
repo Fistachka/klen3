@@ -1,43 +1,38 @@
 <span id="ru"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
-"Клён" (Там, где клён шумит...) группа "Синяя птица" 1975г. 2 часть
-![4](https://github.com/user-attachments/assets/c70e445e-1f4b-4594-8ec9-520aed758c25)
+"Клён" (Там, где клён шумит...) группа "Синяя птица" 1975г. 3 часть
+![6](https://github.com/user-attachments/assets/2e94d9a5-0514-4f05-b03a-5532a285806e)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/1tc32VoVG2U" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/38_hXzXkZY4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
-Там где клён шумит над речной волной
-Говорили мы о любви с тобой
-Опустел тот клён, в поле бродит мгла,
-А любовь как сон стороной прошла.
-А любовь как сон, а любовь как сон,
-А любовь как сон стороной прошла.
+Ни к чему теперь за тобой ходить,
+Ни к чему теперь мне цветы дарить.
+Ты любви моей не смогла сберечь
+Поросло травой место наших встреч.
+Поросло травой, поросло травой,
+Поросло травой место наших встреч...
 
 Предыдущий урок:
-![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/b4ab2c87-d430-4a9a-aa3a-efbcee2dd41c =200x200)
-stolbitsa.com/fistachka/klen<br><br>
+![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/78fcb7b8-bf09-42ff-a2ee-547ce65a70db =200x200)
+stolbitsa.com/fistachka/klen2<br><br>
 
 <span id="en"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
-"Klyon" (Where the maple rustles...) by the band "Sinyaya Ptitsa" (Blue Bird), 1975. 2 st verse
-![4](https://github.com/user-attachments/assets/c70e445e-1f4b-4594-8ec9-520aed758c25)
+"Klyon" (Where the maple rustles...) by the band "Sinyaya Ptitsa" (Blue Bird), 1975. 3 st verse
+![6](https://github.com/user-attachments/assets/2e94d9a5-0514-4f05-b03a-5532a285806e)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/sWgjL_e0RqA" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/LVZdirPM6SM" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
-Tam gde klyon shumit nad rechnoj volnoj
-Govorili my o lyubvi s toboj
-Opustel tot klyon, v pole brodit mgla,
-A lyubov' kak son storonoj proshla.
-A lyubov' kak son, a lyubov' kak son,
-A lyubov' kak son storonoj proshla.
+Ni k chemu teper' za toboj hodit',
+Ni k chemu teper' mne cvety darit'.
+Ty lyubvi moej ne smogla sberech'
+Poroslo travoj mesto nashih vstrech.
+Poroslo travoj, poroslo travoj,
+Poroslo travoj mesto nashih vstrech...
 
 Previous lesson:
-![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/b4ab2c87-d430-4a9a-aa3a-efbcee2dd41c =200x200)
-stolbitsa.com/fistachka/klen<br><br>
-
-
-![6](https://github.com/user-attachments/assets/2e94d9a5-0514-4f05-b03a-5532a285806e)
-![5](https://github.com/user-attachments/assets/ddb68627-65c8-4c70-9fba-fe812ab03a15)
-
+![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/78fcb7b8-bf09-42ff-a2ee-547ce65a70db =200x200)
+stolbitsa.com/fistachka/klen2<br><br>
 
