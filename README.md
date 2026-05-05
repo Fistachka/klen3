@@ -3,7 +3,7 @@
 "Клён" (Там, где клён шумит...) группа "Синяя птица" 1975г. 3 часть
 ![6](https://github.com/user-attachments/assets/2e94d9a5-0514-4f05-b03a-5532a285806e)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/1tc32VoVG2U" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/OcdP56Bi0Tw" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/38_hXzXkZY4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Ни к чему теперь за тобой ходить,
@@ -22,7 +22,7 @@ stolbitsa.com/fistachka/klen2<br><br>
 "Klyon" (Where the maple rustles...) by the band "Sinyaya Ptitsa" (Blue Bird), 1975. 3 st verse
 ![6](https://github.com/user-attachments/assets/2e94d9a5-0514-4f05-b03a-5532a285806e)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/sWgjL_e0RqA" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/rUhugteMQAo" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/LVZdirPM6SM" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Ni k chemu teper' za toboj hodit',
