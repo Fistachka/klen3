@@ -4,7 +4,7 @@
 ![6](https://github.com/user-attachments/assets/2e94d9a5-0514-4f05-b03a-5532a285806e)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/OcdP56Bi0Tw" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
-<iframe width="560" height="315" src="https://www.youtube.com/embed/38_hXzXkZY4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ziyGewlDDz8" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Ни к чему теперь за тобой ходить,
 Ни к чему теперь мне цветы дарить.
@@ -23,7 +23,7 @@ stolbitsa.com/fistachka/klen2<br><br>
 ![6](https://github.com/user-attachments/assets/2e94d9a5-0514-4f05-b03a-5532a285806e)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/rUhugteMQAo" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LVZdirPM6SM" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KADNdndVna8" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Ni k chemu teper' za toboj hodit',
 Ni k chemu teper' mne cvety darit'.
